@@ -1,1 +1,0 @@
-# media-setup-political-assasination
